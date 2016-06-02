@@ -1,4 +1,4 @@
-A Dark Room
+A Dark Room (unblocked!)
 ===========
 > "awake. head throbbing. vision blurry. come light the fire."
 
